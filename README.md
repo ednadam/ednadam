@@ -2,17 +2,15 @@
 
 👀 I’m interested in graphics design, which is very versatile field with various niches and specializations. Here are some of them that I’m interested in:
 
-Social media graphics.
+Social media graphics
 
 Typography design
 
 Branding and identity design
 
-Advertising + marketing design.
+Advertising + marketing design
 
-👀 I’m also interested in marketing and economics, which I am currently studying.
-
-🌱 I’m currently learning basics of programming
+👀 I am currently immersed in the study of marketing and economics, fueling my passion for these subjects, while simultaneously delving into the fundamentals of programming to broaden my skill set.
 
 How to reach me:
 
