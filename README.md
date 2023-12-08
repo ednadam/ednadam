@@ -1,16 +1,21 @@
-### Hi there 👋
+👋 Hi, I’m Adam.
 
-<!--
-**ednadam/ednadam** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+👀 I’m interested in graphics design, which is very versatile field with various niches and specializations. Here are some of them that I’m interested in:
 
-Here are some ideas to get you started:
+Social media graphics.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Typography design
+
+Branding and identity design
+
+Advertising + marketing design.
+
+👀 I’m also interested in marketing and economics, which I am currently studying.
+
+🌱 I’m currently learning basics of programming
+
+How to reach me:
+
+📫 e-mail: adamminar03@gmail.com
+
+📞 phone: 0918 481 143
